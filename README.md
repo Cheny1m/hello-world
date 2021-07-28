@@ -2,4 +2,6 @@
 Just a start
 
 Right now,
-show our enthusiasm
+show
+
+I wanna go to Renmin University of China. 
